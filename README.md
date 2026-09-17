@@ -15,7 +15,7 @@
 ###
 
 <h6 align="center">
-♡ lovers since <ins>29</ins> · <ins>08</ins> · <ins>25</ins> ♡
+♡ lovers since <ins>31</ins> · <ins>08</ins> · <ins>26</ins> ♡
 </h6>
 
 𝚌𝚘𝚘𝚔𝚒𝚎 𝚛𝚞𝚗 • 𝚂𝚏𝚊𝚠𝚝𝚍𝚎 • 𝚟𝚘𝚌𝚊𝚕𝚘𝚒𝚍
